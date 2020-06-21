@@ -4,11 +4,11 @@ title: Extravagan
 ---
 
 Ah, finally!  
-Our saviour is he - wait, hold up.
+Our saviour is her- wait, hold up.
 
 You're not our saviour! 
 
-__You're just a subpar c0der!__
+__You're just a subpar c0d3r! ARGH-__
 
 ---
 
