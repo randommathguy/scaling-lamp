@@ -5,12 +5,12 @@ title: Extravagan
 
 # 16
 
-Ah, finally!  
+"Ah, finally!  
 Our saviour is her- wait, hold up.
 
 You're not our saviour! 
 
-__You're just a subpar c0d3r! ARGH-__
+__You're just a subpar c0d3r! ARGH-__"
 
 ---
 
